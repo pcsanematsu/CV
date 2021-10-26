@@ -1,4 +1,4 @@
 ## Paula C Sanematsu CV
 
-Find my mst update [CV](https://pcsanematsu.github.io/CV/)
+My most updated [CV](https://pcsanematsu.github.io/CV/)
 
